@@ -1,2 +1,0 @@
-# Rentals-Kenora
-Rentals Kenora
